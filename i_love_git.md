@@ -1,4 +1,5 @@
 C'est pas vrai, mais c'est pas grave.
 Enfin, c'est encore trop tôt pour le dire...
 C'est toujours trop tôt...
-En fait c'est pas si mal ^^
+En fait c'est pas si mal.
+
